@@ -1,1 +1,0 @@
-# T-cnicas-Computacionais-11-Set-2026
